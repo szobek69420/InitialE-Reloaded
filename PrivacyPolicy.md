@@ -14,6 +14,10 @@ Initial E: Reloaded does not contain any advertisements.
 
 Initial E: Reloaded does not give the user any opportunity for in-app purchases.
 
+
+
+
+
 I wish you a good time playing Initial E:Reloaded!
 
 Szobek Ádám Márk, Morbisoft Corporation
